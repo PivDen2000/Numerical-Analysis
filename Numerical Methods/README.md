@@ -1,1 +1,0 @@
-# Lab1-Lab3_ChiselniMethodi_Timoshenko
